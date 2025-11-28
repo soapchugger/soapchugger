@@ -1,4 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=EFFFC98B&width=435&lines=%E2%80%9C+BACK+FROM+THE+DEAD+!+%E2%80%9D)](https://git.io/typing-svg)  
+
+![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=c3dc7d&label=experiments)
   
 ![image](https://i.pinimg.com/736x/52/d0/4a/52d04a69f69f30af43df94a6c93cb889.jpg)  
 
@@ -11,6 +13,11 @@ idk what 2 put in these things but here are some things ab me i guess..!
 
 - im usually doing other things so im usually no resp! but if im not w2i pleas.. ty
 
-- i have unpredictable wifi , but i usually reconnect pretty quickly ok? ok.  
+- i have unpredictable wifi , but i usually reconnect pretty quickly ok? ok.
+
+![gif](https://files.catbox.moe/fgg9wt.gif)
+![gif](https://files.catbox.moe/9vfabb.gif)
+![gif](https://files.catbox.moe/1grvk6.gif)
+![gif](https://files.catbox.moe/zn4qlb.gif)
   
 creds to aud the cutest most amazing pup ever for making this repository for me!!! I LOVE YOU!!!!
