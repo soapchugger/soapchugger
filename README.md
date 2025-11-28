@@ -1,7 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=EFFFC98B&width=435&lines=%E2%80%9C+BACK+FROM+THE+DEAD+!+%E2%80%9D)](https://git.io/typing-svg)  
 
-![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=c3dc7d&label=experiments)
-  
+![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=c3dc7d&label=experiments)  
 ![image](https://i.pinimg.com/736x/52/d0/4a/52d04a69f69f30af43df94a6c93cb889.jpg)  
 
 ## hi im sam ♡  
