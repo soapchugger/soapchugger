@@ -1,3 +1,5 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CBFFCF8B&width=435&lines=%E2%80%9C+back+from+the+dead+!+%E2%80%9D)](https://git.io/typing-svg)
+  
 ![image](https://i.pinimg.com/736x/52/d0/4a/52d04a69f69f30af43df94a6c93cb889.jpg)  
 
 ## hi im sam ♡  
