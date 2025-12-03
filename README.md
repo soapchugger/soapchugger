@@ -14,6 +14,8 @@ idk what 2 put in these things but here are some things ab me i guess..!
 
 - i have unpredictable wifi , but i usually reconnect pretty quickly ok? ok.
 
-![gif](https://files.catbox.moe/fgg9wt.gif)
+![gif](https://files.catbox.moe/fgg9wt.gif)  
+<img width="687" height="599" alt="17647374589199132472973406101665" src="https://github.com/user-attachments/assets/220f757e-64ad-4473-8558-76fbf08625fc" />
+
   
 creds to aud the cutest most amazing pup ever for making this repository for me!!! I LOVE YOU!!!!
