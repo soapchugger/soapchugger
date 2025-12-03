@@ -1,7 +1,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=B44341&width=435&lines=%22nyoom!%22;%22+merry+christmas!%22)](https://git.io/typing-svg)  
 
 ![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=b44341&label=presents)  
-![Screenshot_20251202_230801_TikTok](https://github.com/user-attachments/assets/cb89f4d4-8ebe-4ef2-813d-f9082fef47c6)
+![Screenshot_20251202_230801_TikTok](https://github.com/user-attachments/assets/cb89f4d4-8ebe-4ef2-813d-f9082fef47c6)  
+art by yoaifein on tiktok
  
 
 ## hi im sam ♡  
