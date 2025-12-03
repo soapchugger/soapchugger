@@ -1,7 +1,7 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=EFFFC98B&width=435&lines=%E2%80%9C+BACK+FROM+THE+DEAD+!+%E2%80%9D)](https://git.io/typing-svg)  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=B44341&width=435&lines=%22nyoom!%22;%22+merry+christmas!%22)](https://git.io/typing-svg)  
 
-![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=c3dc7d&label=experiments)  
-![image](https://i.pinimg.com/736x/52/d0/4a/52d04a69f69f30af43df94a6c93cb889.jpg)  
+![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=b44341&label=presents)  
+![image](https://i.pinimg.com/736x/14/13/73/141373b24644fe69fc86e1bdfa229cb8.jpg)  
 
 ## hi im sam ♡  
 idk what 2 put in these things but here are some things ab me i guess..!  
@@ -15,8 +15,5 @@ idk what 2 put in these things but here are some things ab me i guess..!
 - i have unpredictable wifi , but i usually reconnect pretty quickly ok? ok.
 
 ![gif](https://files.catbox.moe/fgg9wt.gif)
-![gif](https://files.catbox.moe/9vfabb.gif)
-![gif](https://files.catbox.moe/1grvk6.gif)
-![gif](https://files.catbox.moe/zn4qlb.gif)
   
 creds to aud the cutest most amazing pup ever for making this repository for me!!! I LOVE YOU!!!!
