@@ -1,6 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=B44341&width=435&lines=%22nyoom!%22;%22+merry+christmas!%22)](https://git.io/typing-svg)  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&duration=3000&pause=1000&color=f4495a&width=435&lines=%22nyoom!%22;%22+MERRY+CHRISTMAS!%22)](https://git.io/typing-svg)  
 
-![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=b44341&label=presents)  
+![](https://komarev.com/ghpvc/?username=soapchugger&style=plastic&color=f4495a&label=presents)  
 ![image](https://i.pinimg.com/736x/5b/28/f0/5b28f0e93bcb1186e7e39c5c61055a6d.jpg)  
 art by jeevawiiqq on tiktok
  
