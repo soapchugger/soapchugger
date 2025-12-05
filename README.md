@@ -19,7 +19,8 @@ idk what 2 put in these things but here are some things ab me i guess..!
 - kins : rudie (#1) , shrimpo , dib ! (i barely get into any media that isn't my current interests that I've had 4 awhile </3)
  
 - usually sitting with m4ngle/aud!! feel free to sit w us we dont mind !! ^_^
-![gif](https://files.catbox.moe/fgg9wt.gif) ![17647396568903293885378825377410](https://github.com/user-attachments/assets/394ee675-5d84-4af4-b847-fac8318085c9)
+!
+[gif](https://files.catbox.moe/fgg9wt.gif) ![17647396568903293885378825377410](https://github.com/user-attachments/assets/394ee675-5d84-4af4-b847-fac8318085c9)
  ![17647378626755262928643054519263](https://github.com/user-attachments/assets/bd128a00-6a9f-4157-9417-9c72c46808cf)  
 
 <img width="687" height="599" alt="17647374589199132472973406101665" src="https://github.com/user-attachments/assets/220f757e-64ad-4473-8558-76fbf08625fc" />.  
