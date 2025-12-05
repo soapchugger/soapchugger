@@ -5,17 +5,20 @@
 art by jeevawiiqq on tiktok
  
 
-## hi im sam ♡  
+## hi im sam ! !
 idk what 2 put in these things but here are some things ab me i guess..!  
 
 - i rlly like little nightmares , dandys world , creepypasta n invader zim ! (๑ᵔ⤙ᵔ๑)
   
 - im really awkward w new people but feel free to cuddle me i love ir
 
-- im usually doing other things so im usually no resp! but if im not w2i pleas.. ty
+- pm always doing other things so im usually no resp! but if im not w2i pleas.. ill respond as soon as I notice! ty..
 
 - i have unpredictable wifi , but i usually reconnect pretty quickly ok? ok.
 
+- kins : rudie (#1) , shrimpo , dib ! (i barely get into any media that isn't my current interests that I've had 4 awhile </3)
+ 
+- usually sitting with m4ngle/aud!! feel free to sit w us we dont mind !! ^_^
 ![gif](https://files.catbox.moe/fgg9wt.gif) ![17647396568903293885378825377410](https://github.com/user-attachments/assets/394ee675-5d84-4af4-b847-fac8318085c9)
  ![17647378626755262928643054519263](https://github.com/user-attachments/assets/bd128a00-6a9f-4157-9417-9c72c46808cf)  
 
