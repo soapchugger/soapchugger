@@ -5,7 +5,7 @@
 art by jeevawiiqq on tiktok
  
 
-## hi im sam ! !
+## hi im sam ! ! 
 idk what 2 put in these things but here are some things ab me i guess..!  
 
 - i rlly like little nightmares , dandys world , creepypasta n invader zim ! (๑ᵔ⤙ᵔ๑)
@@ -18,6 +18,8 @@ idk what 2 put in these things but here are some things ab me i guess..!
 
 - kins : rudie (#1) , shrimpo , dib ! (i barely get into any media that isnt my current interests that ive had 4 awhile </3)
 - usually sitting with m4ngle/aud!! feel free to sit w us we dont mind !! ^_^
+
+- not rlly comfortable w s3xual jokes unless we're close, especially if ur 18+, if u do smth that makes me uncomfortable ill lyk!
 
 ![gif](https://files.catbox.moe/fgg9wt.gif) ![17647396568903293885378825377410](https://github.com/user-attachments/assets/394ee675-5d84-4af4-b847-fac8318085c9)
  ![17647378626755262928643054519263](https://github.com/user-attachments/assets/bd128a00-6a9f-4157-9417-9c72c46808cf)  
