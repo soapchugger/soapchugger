@@ -20,6 +20,8 @@ idk what 2 put in these things but here are some things ab me i guess..!
 - usually sitting with m4ngle/aud!! feel free to sit w us we dont mind !! ^_^
 
 - not rlly comfortable w s3xual jokes unless we're close, especially if ur 18+, if u do smth that makes me uncomfortable ill lyk!
+  
+- some1 posted my bluebell rudie to pinterest WITHOUT my permission and claimed it as theirs + f2u. soapchugger is the original 
 
 ![gif](https://files.catbox.moe/fgg9wt.gif) ![17647396568903293885378825377410](https://github.com/user-attachments/assets/394ee675-5d84-4af4-b847-fac8318085c9)
  ![17647378626755262928643054519263](https://github.com/user-attachments/assets/bd128a00-6a9f-4157-9417-9c72c46808cf)  
