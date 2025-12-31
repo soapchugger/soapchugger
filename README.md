@@ -7,6 +7,7 @@ art by jeevawiiqq on tiktok
 
 ## b4 you int !!
 ────୨ৎ────
+
 .༉‧₊˚ i rlly like little nightmares , dandys world , creepypasta n invader zim ! (๑ᵔ⤙ᵔ๑)
   
 .༉‧₊˚ im really awkward w new people but feel free to cuddle me !
