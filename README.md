@@ -17,13 +17,9 @@ art by jeevawiiqq on tiktok
 
 .༉‧₊˚ always doing other things, w2i pleas.. ill respond as soon as I notice!
 
-.༉‧₊˚ kins : rudie (#1) , shrimpo , dib ! (iz)
-
-.༉‧₊˚ usually sitting with m4ngle/aud!! feel free to sit w us we dont mind !! ^_^
-
 .༉‧₊˚ not rlly comfortable w s3xual jokes unless we're close, especially if ur 18+, if u do smth that makes me uncomfortable ill lyk!  
   
-.༉‧₊˚ i know that some1 posted my bluebell rudie to pinterest without my permission ok
+.༉‧₊˚ thanks 4 copying my layout exactly u know who u are.
 
 ![gif](https://files.catbox.moe/fgg9wt.gif) ![17647396568903293885378825377410](https://github.com/user-attachments/assets/394ee675-5d84-4af4-b847-fac8318085c9)
  ![17647378626755262928643054519263](https://github.com/user-attachments/assets/bd128a00-6a9f-4157-9417-9c72c46808cf)  
